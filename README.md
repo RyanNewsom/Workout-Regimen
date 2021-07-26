@@ -6,7 +6,7 @@ For anything where reps isn't stated, goal is 6-8 reps. I try to get 8 on my fir
 Chest
 * Barbell Bench Press, 8 sets, Add 10 lbs each set.
 * Dumbbell Incline Bench Press 4 sets, Add 5 lbs each set
-* Dips 4 sets
+* Dips 4 sets. The more you lean forward, more chest you hit (ideal)
 
 Back
 * Dumbbell row 4 sets, Add 5 lbs each set
@@ -48,16 +48,15 @@ Repeat days 1-3 twice, then take a rest day. If you skip a day, continue where y
 
 Notes:
 * In general, want to always pyramid up
-* Should take 1 hour ideally, arms/abs day takes me 90 minutes
+* Should take 1 hour ideally, arms/abs day takes me 90 minutes though
 * If you feel you are platueing, lower the weight a bit, and increase your speed
 * Make sure each rep you go the full range of motion
-* If your form feels wrong, it probably is
+* If your form feels wrong or you feel pain, it probably is
+* Don't bounce the bar off your chest when doing bench
+* Machines are fine but dumbbells are great for your stablizer muscles
 * Protein powder good, pre workout, bad. Use coffee 
 * Don't expect instant results, typically you will do this workout for a few weeks, then be able to increase by 10 lbs on bench press as an example
 * Don't stretch cold
 * No need to modify any exercises to 'confuse' your muscles. Bunch of BS to keep personal trainers employed. You can do this workout indefinitely, but feel free to modify individual exercises as desired but maintain muscle group targets.
-* You'll notice each regimen starts with the exercise w/ the most weight, and then moves down.
+* You'll notice each regimen starts with the exercise w/ the most weight, and then moves down. This is intentional. (ex. Squat is the first exercise on leg day).
 * Don't skip leg day, it is known to increase testosterone 
-
-
-
