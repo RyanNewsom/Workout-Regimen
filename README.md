@@ -53,6 +53,11 @@ Notes:
 * Make sure each rep you go the full range of motion
 * If your form feels wrong, it probably is
 * Protein powder good, pre workout, bad. Use coffee 
+* Don't expect instant results, typically you will do this workout for a few weeks, then be able to increase by 10 lbs on bench press as an example
+* Don't stretch cold
+* No need to modify any exercises to 'confuse' your muscles. Bunch of BS to keep personal trainers employed. You can do this workout indefinitely, but feel free to modify individual exercises as desired but maintain muscle group targets.
+* You'll notice each regimen starts with the exercise w/ the most weight, and then moves down.
+* Don't skip leg day, it is known to increase testosterone 
 
 
 
