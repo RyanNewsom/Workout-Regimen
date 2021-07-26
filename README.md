@@ -1,6 +1,6 @@
 # WorkoutRegimen
 
-For anything where reps isn't stated, goal is 6-8 reps. I try to get 8 on my first sets, and on my last set if I get 6 or 7 reps, I feel that was a good amount of weight for that exercise.
+For anything where reps isn't stated, goal is 6-8 reps. I try to get 8 on my first set, and on my last set if I get 6 or 7 reps, I feel that was a good amount of weight for that exercise.
 
 ## Day 1
 Chest
