@@ -57,7 +57,7 @@ Notes:
 * Protein powder good, pre workout, bad. Use coffee 
 * Don't expect instant results, typically you will do this workout for a few weeks, then be able to increase by 10 lbs on bench press as an example
 * Don't stretch cold
-* No need to modify any exercises to 'confuse' your muscles. Bunch of BS to keep personal trainers employed. You can do this workout indefinitely, but feel free to modify individual exercises as desired but maintain muscle group targets.
+* No need to modify any exercises to 'confuse' your muscles. Bunch of BS from the industry. You can do this workout indefinitely, but feel free to modify individual exercises as desired but maintain muscle group targets.
 * You'll notice each regimen starts with the exercise w/ the most weight, and then moves down. This is intentional. (ex. Squat is the first exercise on leg day).
 * Don't skip leg day, it is known to increase testosterone 
 * Also I did not come up with this, a well respected body builder did. But it has worked well for me
