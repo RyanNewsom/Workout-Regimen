@@ -1,4 +1,4 @@
-# WorkoutRegimen
+# Workout Regimen
 
 For anything where reps isn't stated, goal is 6-8 reps. I try to get 8 on my first set, and on my last set if I get 6 or 7 reps, I feel that was a good amount of weight for that exercise.
 
@@ -60,3 +60,4 @@ Notes:
 * No need to modify any exercises to 'confuse' your muscles. Bunch of BS to keep personal trainers employed. You can do this workout indefinitely, but feel free to modify individual exercises as desired but maintain muscle group targets.
 * You'll notice each regimen starts with the exercise w/ the most weight, and then moves down. This is intentional. (ex. Squat is the first exercise on leg day).
 * Don't skip leg day, it is known to increase testosterone 
+* Also I did not come up with this, a well respected body builder did. But it has worked well for me
